@@ -1,45 +1,34 @@
-# Sryxen Stealer – Paid Source Leak 🔥
+💀 Sryxen Stealer – Private Source LEAKED 💥
 
-**🚨 Sryxen Stealer (Paid Version) – Full Source Code Leak 🚨**  
-Undetected, powerful, and ready to build. No more gatekeeping.
+🔥 Premium Infostealer | Cracked & Unchained 🔥
+💸 Used to cost real $$$ — now it’s public.
+🧠 Fully customizable, clean source.
+💻 Just build, spread, and cash in.
+⚔️ What It Does:
+    Token grabbing (yes, that kind)
+    Cookie, session, and login snatching
+    Credentials, configs, and more
+    Polished builder included
+    Lightweight, undetected, zero bloat
 
-💀 **Originally sold for $$$ — now FREE.**  
-💬 **Need more tools? Buy custom builds, cracks, & logs at:**  
-👉 [t.me/phantompeekshop](https://t.me/phantompeekshop)
+🚀 How To Use:
+    Plug in your drop method (webhook, socket, tunnel — your call)
+    Generate the stub
+    Deploy and watch the magic 💸
 
----
+📦 You Get:
+    Full source (client + builder)
+    No DRM, no strings, no bs backdoors, no dualhooks
 
-### 💣 Features:
-- Discord Token Grabber + Injection
-- Chrome/Edge/Brave/Opera Cookie Stealer
-- Password Dumper
-- Web Panel (PHP + MySQL)
-- Customizable Builder
-- Lightweight Stub (~50–70kb)
-- No obfuscation – edit as you like
+⚠️ FOR EDUCATIONAL PURPOSES ONLY.
+We don’t endorse illegal activity. What you do is on you.
+🛒 WANT MORE LIKE THIS?
 
----
+🔞 Logs. Stealers. Loaders. Tools. Cracks. Mods.
+💬 Private builds? Need support? Want fresh leaks?
+👉 t.me/phantompeekshop 👈
 
-### 🔧 How to Build:
-1. Configure your webhook/settings in the builder  
-2. Generate stub  
-3. Send & profit 😈
+💣 Trusted by resellers. Run by pros. Updated DAILY.
 
----
-
-### 📦 Includes:
-- Full C# source code
-- Web panel files
-- Icons + extras
-- Builder source
-
----
-
-⚠️ **Disclaimer:**  
-This repo is for educational and research purposes only.  
-We do **not** condone illegal usage of this code. Use responsibly.
-
----
-
-🔥 Star this repo to keep it alive  
-🛒 **[t.me/phantompeekshop](https://t.me/phantompeekshop)** – Custom stealers, cracked tools, and more.
+⭐ Star this leak if you want more like it.
+🚷 Don’t get scammed by fakes — get the real drops here.
