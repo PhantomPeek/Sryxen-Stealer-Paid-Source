@@ -1,5 +1,5 @@
 💀 Sryxen Stealer – Private Source LEAKED 💥
-
+👉 **[t.me/phantompeekshop](https://t.me/phantompeekshop)**
 🔥 Premium Infostealer | Cracked & Unchained 🔥
 💸 Used to cost real $$$ — now it’s public.
 🧠 Fully customizable, clean source.
@@ -26,7 +26,7 @@ We don’t endorse illegal activity. What you do is on you.
 
 🔞 Logs. Stealers. Loaders. Tools. Cracks. Mods.
 💬 Private builds? Need support? Want fresh leaks?
-👉 t.me/phantompeekshop 👈
+👉 **[t.me/phantompeekshop](https://t.me/phantompeekshop)**
 
 💣 Trusted by resellers. Run by pros. Updated DAILY.
 
